@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @jjepaah
-- 👀 I’m interested in gaming, programming and machining
+- 👀 I’m interested in gaming, programming, airsoft and machining
 - 🌱 I’m currently learning AI
 - 📫 How to reach me e-mail jjepaah@gmail.com
 
